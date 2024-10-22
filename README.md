@@ -1,4 +1,4 @@
-<h1><strong>Blogger Template with Additional Codes | No Licence 2024</strong></h1>
+<h1><strong>Plus UI Blogger Template with Additional Codes | No Licence</strong></h1>
 
 <p>&nbsp;</p>
 
