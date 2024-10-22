@@ -140,8 +140,34 @@
 <ul>
 </ul>
 </blockquote>
+<br/>
+<p><a href="https://ui-plus.blogspot.com/">Download now!&nbsp;</a> - or - <a href="https://ui-plus.blogspot.com/">Demo</a></p>
+<br/>
 
-<p><a href="https://plus-ui-amp-lite.blogspot.com/">Buy now!&nbsp;</a><a href="https://plus-ui-amp-lite.blogspot.com/">Demo</a></p>
+<ul>
+	<li>Plus UI Redesign</li>
+	<li>Plus UI Download</li>
+	<li>Plus UI Blogger Template Download</li>
+	<li>Plus UI Safelink</li>
+	<li>Plus UI Typograpfy</li>
+	<li>Plus UI Documentation</li>
+</ul>
+
+<p><em>Plus Ui</em> 3.0.0 Blogger Premium Template. <em>Plus UI</em> is a fully customizable user-friendly and responsive blogger template.</p>
+
+<ul>
+	<li>Plus ui blogger templates <strong>free download</strong></li>
+	<li>Plus ui blogger templates <strong>free</strong></li>
+	<li>Plus ui blogger templates <strong>github</strong></li>
+	<li>Plus ui blogger templates <strong>download</strong></li>
+	<li>Plus UI <strong>v2 6.5 download</strong></li>
+	<li>plus ui <strong>- premium</strong> blogger <strong>template</strong></li>
+	<li>Plus UI <strong>v2 6.4 Download</strong></li>
+	<li>Plus UI <strong>v2 6.2 download</strong></li>
+</ul>
+
+
+
 
 <p>&nbsp;</p>
 
