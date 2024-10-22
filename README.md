@@ -2,13 +2,14 @@
 
 <p>&nbsp;</p>
 
-<p>Plus UI is a premium Blogger template that comes with a sleek and modern design along with a range of customization options to make your brand unique. This template is perfect for bloggers who want to create a professional and attractive online presence.</p>
+<p><a href="https://ui-plus.blogspot.com">Plus UI is a premium Blogger</a> template that comes with a sleek and modern design along with a range of customization options to make your brand unique. This template is perfect for bloggers who want to create a professional and attractive online presence.</p>
 
 <p>The Plus UI template includes a number of features to help you create a great-looking website. It comes with a range of typography options along with Google Fonts, which can help make your content more attractive and visually appealing. The template also includes a range of widgets and modules, such as a featured section and a popular posts section, which can help increase engagement on your website.</p>
 
 <h2><strong>Description</strong></h2>
 
-<p>One great thing about the Plus UI is that it is completely responsive, which means it will look great on any device. This is a necessary feature, since many people access the internet from their mobile devices.</p>
+<p>One great thing about the <strong>Plus UI</strong> is that it is completely responsive, which means it will look great on any device. This is a necessary feature, since many people access the internet from their mobile devices.</p>
+
 
 <p>The template is also optimized for search engines, which can help improve your website&#39;s visibility in search results. This is important if you want to attract more visitors to your website and increase your online presence.</p>
 
